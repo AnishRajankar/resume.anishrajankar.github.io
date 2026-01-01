@@ -1,1 +1,0 @@
-# resume.anishrajankar.github.io
